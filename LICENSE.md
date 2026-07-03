@@ -1,4 +1,4 @@
-# 
+# bridger western Script no-ban is the best bridger western Script, featuring one-hit kill and no cooldown. Safe and powerful for all your needs.
 
 
 
